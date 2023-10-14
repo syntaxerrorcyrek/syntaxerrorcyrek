@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @syntaxerrorcyrek
+- 👀 I’m interested in UR MOM *cough* sorry
+- 🌱 I’m currently learning francaise
+- 💞️ I’m looking to collaborate on some lil projects
+- 📫 How to reach me :
+-   Instagram - @me_doesnthave_name
